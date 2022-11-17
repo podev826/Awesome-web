@@ -1,6 +1,6 @@
-If so, can you pay via paypal?
-Please type "yes" if you can.
-
+Ok, but you have to pay via paypal.
+And please use skype.
+Only when I receive message from skype, I will start
 
 
 
