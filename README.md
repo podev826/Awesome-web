@@ -1,3 +1,15 @@
+If so, can you pay via paypal?
+Please type "yes" if you can.
+
+
+
+
+
+
+
+
+
+
 # My Skype id is live:.cid.c98176b259c1af44
 
 Usually I work on skype.
